@@ -1,1 +1,0 @@
-Refreshing old Discord theme.
